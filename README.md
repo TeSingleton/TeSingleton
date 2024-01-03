@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **worksingletonmcdaniel@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/svanté-singleton-mcdaniel-90328260/](https://www.linkedin.com/in/svanté-singleton-mcdaniel-90328260/)
+- 📄 Know about my experiences [Linkedin](https://www.linkedin.com/in/svanté-singleton-mcdaniel-90328260/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
