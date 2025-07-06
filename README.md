@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Swift**
 
-- 💬 Ask me about **Prompt Engineering**
+- 💬 Ask me about **Photography**
 
 - 📫 How to reach me **worksingletonmcdaniel@gmail.com**
 
